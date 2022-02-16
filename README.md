@@ -1,4 +1,4 @@
-# Hi, Im Muzammil  :in: :au:
+# Hi, Im Muzammil  
 
 ## My Skills
 
